@@ -1,1 +1,1 @@
-My first commit
+GOD IS GOOD
